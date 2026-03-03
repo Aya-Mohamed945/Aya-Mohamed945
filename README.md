@@ -30,7 +30,7 @@
 ---
 
 ### 📫 How to Reach Me
-- LinkedIn: [aya-mohamed-94a256347](https://www.linkedin.com/in/aya-mohamed-94a256347)
+- LinkedIn: [aya-abd-elazim-94a256347](https://www.linkedin.com/in/aya-abd-elazim-94a256347/?isSelfProfile=true)
 
 ---
 
