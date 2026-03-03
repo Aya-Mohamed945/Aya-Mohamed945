@@ -1,4 +1,4 @@
-## Hi 👋, I'm Aya Mohamed
+## Hi 👋, I'm Aya Abd Elazim
 
 🎓 A passionate Computer Science student from Egypt.
 
