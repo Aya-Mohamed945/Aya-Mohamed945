@@ -17,7 +17,7 @@
 ### 👨‍💻 My Work
 👨‍💻 Explore more of my work on:
 - 📂 This GitHub profile (browse my repositories!)
-- 🔗 [LinkedIn](https://www.linkedin.com/in/aya-mohamed-94a256347)
+- 🔗 [LinkedIn](www.linkedin.com/in/aya-abd-elazim-94a256347)
 
 
 ---
